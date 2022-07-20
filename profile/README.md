@@ -1,1 +1,1 @@
-## Hey there :hand: here we us!
+## Hey there :hand: here we are!
