@@ -1,1 +1,1 @@
-## Hey there :hand: this is us!
+## Hey there :wave: this is us!
